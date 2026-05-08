@@ -1,4 +1,4 @@
-
+Experience 3008 like never before with automatic Scripts for 3008, the #1 Script. Includes teleport and infinite resources for unbeatable performance.
 
 
 
